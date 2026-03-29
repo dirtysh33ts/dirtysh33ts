@@ -15,7 +15,7 @@
 
 <p align="center">Homophobic, Transphobic, Xenophobic, etc.
  
- <p align="center">Incest shipper, Truscum / Transmed / Tucute, Syscourse
+ <p align="center">Incest shipper
  
  <p align="center">Racist, Nazi, Sexist, Discrimination, etc.
  
