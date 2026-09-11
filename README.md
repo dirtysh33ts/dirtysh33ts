@@ -10,7 +10,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
 
 
 <p align="center">Homophobic, Transphobic, Xenophobic, etc.
@@ -28,7 +28,7 @@
  
  <p align="center">Supports, participates, tolerates, or justify any of the above.
 
-<img width="1280" height="70" alt="tumblr_51bd6f7ece792d002d4913dc7d38711c_aca2104e_1280" />
+<img width="1280" height="70" alt="tumblr_51bd6f7ece792d002d4913dc7d38711c_aca2104e_1280" src="https://github.com/user-attachments/assets/ae1714de-99e1-4ace-b95a-6348545ac172" />
 
  
 What my status means!
